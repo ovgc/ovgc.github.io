@@ -1,1 +1,0 @@
-OVGC competition results
